@@ -1,4 +1,4 @@
-### <div align="center">I'm an system engineer currently studying specialization in software development processes.👨‍💻 working since 2011 🚀</div>  
+### <div align="center">I'm system engineer currently studying specialization in software development processes.👨‍💻 working since 2011 🚀</div>  
   
 
 <br/>  
