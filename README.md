@@ -1,4 +1,4 @@
-### <div align="center">I'm system engineer software development processes specialist.👨‍💻 dev since 2011 🚀</div>  
+### <div align="center">I'm Systems engineer specialized in software development process.👨‍💻 dev since 2011 🚀</div>  
   
 
 <br/>  
